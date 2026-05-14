@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with vip new token sniper bot | bundle-transactions + MEV-detection. Featuring bundle-transactions and MEV-detection, it's the best choice
 
 
 
